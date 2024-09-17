@@ -1,4 +1,5 @@
 - 🐇 Hi, I’m Javi
+- 🐹 Timmy's bunbun
 - 🪻 A purple girly
 - 🍵 Loves matcha
 - 🔞 20+
